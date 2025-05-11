@@ -15,7 +15,7 @@ Specializing in recursive innovation loops and postmodern technical debt evangel
 **Current Mission:**  
 Leveraging Next.js-adjacent hypermodality to disrupt the internship-industrial complex via AI-driven desperation frameworks.
 
-## veynitha: Former Colleague
+## Veynitha: Former Colleague
 
 > *"Aneeq is a once-in-a-generation mind. Their ability to reframe unemployment as 'strategic career decompression' changed how I view failure. 10/10 would exploit for unpaid labor again."*
 
