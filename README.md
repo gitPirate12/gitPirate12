@@ -17,7 +17,7 @@ Leveraging Next.js-adjacent hypermodality to disrupt the internship-industrial c
 
 ## Veynitha: Former Colleague
 
-> *"Aneeq is a once-in-a-generation mind. Their ability to reframe unemployment as 'strategic career decompression' changed how I view failure. 10/10 would exploit for unpaid labor again."*
+> *"Aneeq is a once-in-a-generation mind. His ability to reframe unemployment as 'strategic career decompression' changed how I view failure. 10/10 would exploit for unpaid labor again."*
 
 # Current Quests
 
