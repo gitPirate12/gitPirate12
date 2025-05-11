@@ -4,14 +4,14 @@ Multi-disciplinary disrupter navigating the liminal space between 'unpaid intern
 
 # Currently Learning
 
--Industrial confusion & inconviencience engineering
--Force push and pray
--Escaping jobofobia and nailing that first interview (send help).
--Next.js and overcoming the lingering vibe-coding mind virus, while speedrunning a full-blown existential crisis. 
--Analytical analysis
--Trump’s tariff game (Trump’s tariff game> Sun Tzu’s Art of War). Multi-polar world, baby.  
--Actively recalibrating my endogenous circadian pacemaker to synchronize with socially acceptable hours.
--Rats (those lil cheese eating gray guys)
+- Industrial confusion & inconvenience engineering
+- Force push and pray
+- Escaping jobophobia and nailing that first interview (send help).
+- Next.js and overcoming the lingering vibe-coding mind virus, while speedrunning a full-blown existential crisis.
+- Analytical analysis
+- Trump’s tariff game (Trump’s tariff game > Sun Tzu’s Art of War). Multi-polar world, baby.
+- Actively recalibrating my endogenous circadian pacemaker to synchronize with socially acceptable hours.
+- Rats (those lil cheese-eating gray guys)
 
 ## Veynitha: Former Colleague
 
